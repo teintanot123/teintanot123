@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Hugh
+- 👀 I’m interested in Journalism
